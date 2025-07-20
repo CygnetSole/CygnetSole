@@ -1,5 +1,7 @@
-## Hi there 👋
+## ![NinjalaJaneGIF](https://github.com/user-attachments/assets/64c672d1-7ff9-472d-865c-59e72f29a02c)
+GlenRoy King 
 
+**`Digital Artisan [AI. Aesthetics. Engineering. All in one vision.]`**
 <!--
 **CygnetSole/CygnetSole** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
